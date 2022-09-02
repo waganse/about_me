@@ -82,3 +82,9 @@ ExpediaでのWFHの文化が染み付いていたため、リモート勤務NG�
 投資（仮想通貨、米国株ETF、積み立てNISA、iDeco、不動産）
 
 お酒（よく記憶なくします。。）
+
+## 参考情報
+
+[ポートフォリオサイト](https://yosuke-sato.com)
+[インタビュー記事](https://www.sollective.jp/blog/d70c77f1-07fd-481c-827b-948fdd6891d2)
+
